@@ -1,2 +1,2 @@
 # new_story-
-the bst story ever
+the best story ever
